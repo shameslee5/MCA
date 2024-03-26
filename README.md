@@ -1,1 +1,2 @@
 # MCA
+A merchant cash advance is an alternative type of business financing that advances a lump-sum payment based on future credit or debit card sales. You're essentially guaranteeing the advance with future revenue.A [merchant cash advance](https://advancery.io/merchant-cash-advance/), or MCA, is short-term funding for businesses that accept debit and credit card payments. An MCA is an alternative mode of financing to traditional small-business loans.
